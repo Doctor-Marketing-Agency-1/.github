@@ -7,7 +7,7 @@ In today’s digital world, patients aren’t relying solely on referrals to cho
 - ✅ **90% of patients** read online reviews before selecting a provider.  
 - ✅ **46% of Google searches** are for local businesses—including medical practices.  
 
-If your practice is invisible online, potential patients will bypass your services and choose a competitor who has invested in digital marketing with a **Doctor Marketing Agency** like **Intellius Medical**.  
+If your practice is invisible online, potential patients will bypass your services and choose a competitor who has invested in digital marketing with a [doctor marketing agency](https://www.intelliusmedical.com/) like **Intellius Medical**.  
 
 A strong online presence ensures that high-quality patient inquiries come directly to your practice, giving you an edge over the competition.  
 
